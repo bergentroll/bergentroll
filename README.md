@@ -1,5 +1,5 @@
 - 🙏 Hi, I’m [Anton Karmanov](@bergentroll)
-- 👀 I’m interested in something
+- 👀 I’m interested in tea, toads
 - 🌱 I’m currently learning something for sure!
 - 💞️ I’m looking to collaborate on nothing
 - 📫 How to reach me: send a post card
